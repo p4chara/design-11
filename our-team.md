@@ -24,4 +24,4 @@
 
 Contact:[Facebook Teerachot Ngokpo](https://www.facebook.com/share/kdEDEFCEaxGEn9TB/?mibextid=qi2Omg) 🥇
 
-<img src="../pang/Image/Atom.jpg">
+<img src="../Pang/Image/Atom.jpg">
