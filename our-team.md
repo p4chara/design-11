@@ -25,6 +25,6 @@
 * เล่นบอร์ดเกม
 
 ช่องทางติดต่อ
-[IG: _.pangxd](https://www.instagram.com/_.pangxd/)
+[IG: _.pangxd](https://www.instagram.com/_.pangxd/) 🍀
 
-<img src="../Atom/Image/pang.jpg"> 🍀
+<img src="../Atom/Image/pang.jpg"> 
