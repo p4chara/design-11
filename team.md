@@ -6,6 +6,7 @@
 * ราเม็ง
 * โมจิ
 * ข้าวปั้น
+
 อนิเมะ :fingers_crossed: :
 * Sword Art Online
 * Happy Sugar Life That Time
