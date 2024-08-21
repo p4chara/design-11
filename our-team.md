@@ -27,4 +27,4 @@
 * กิน
 * เล่นบาส
 
-ช่องทางติดต่อ : [Ig : p4chara](https://www.instagram.com/p4chara?igsh=MXZoZDAwY2lubXR2cg==)
+ช่องทางติดต่อ : [Ig : aichnauuem](https://www.instagram.com/aichnauuem?igsh=anFpN3g0aGw2czds)
