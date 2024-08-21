@@ -17,7 +17,7 @@
 * Shin Godzilla
 * Spider man no way home
 
-สีที่ชอบ  :blue_circle: :purple_circle:  :green_circle:   : ฟ้า ม่วง เขียว
+สีที่ชอบ :blue_square:  :purple_circle:  :green_circle:   : ฟ้า ม่วง เขียว
 
 ศิลปินที่ชอบ :microphone:  : 
 * Kanaria EVE                                                                                                                                                                                                                    * เมลานี
