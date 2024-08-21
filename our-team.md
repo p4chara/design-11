@@ -1,3 +1,5 @@
+BY NAMWARN 67130500103
+
 ชื่อ: พชร คล้ายสิทธิ์ (กาย) :suspect:
 
 จบมาจาก: Rayol English Program School
@@ -11,8 +13,11 @@
 
 สีที่ชอบ: น้ำเงิน
 
-แนวเพลงที่ชอบ/ศิลปินที่ชอบ: Arctic Monkeys
-
+แนวเพลงที่ชอบ/ศิลปินที่ชอบ
+* Arctic Monkeys
+* Oasis
+* Radio head
+  
 งานอดิเรก: เตะฟุตบอล
 
 ช่องทางติดต่อ : [Ig : p4chara](https://www.instagram.com/p4chara?igsh=MXZoZDAwY2lubXR2cg==)
