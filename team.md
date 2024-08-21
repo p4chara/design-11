@@ -1,7 +1,29 @@
-ชื่อ  : พิรญาณ์ มือชัยภูมิ ( น้ำหวาน)
-จบมาจาก : สาธิตมศวประสานมิตร
-ชอบกินอะไร : หมาล่า
-หนัง/ซีรีย์ที่ชอบ : even if this love disappeared tonight 
-สีที่ชอบ : แดง
-ศิลปินที่ชอบ : keshi
-งานอดิเรก : เล่นเปตอง / เต้น
+# แนะนำ ICE  :snowflake: 
+ชื่อ  : ต่อศักดิ์ โรจนกรินทร์ ( ICE ) <br>
+วันเกิด : 18 มีนาคม 2549 <br>
+จบมาจาก : นนทบุรีวิทยาลัย <br>
+ชอบกินอะไร  :curry:   : 
+* ราเม็ง
+* โมจิ
+* ข้าวปั้น
+อนิเมะ :fingers_crossed: :
+* Sword Art Online
+* Happy Sugar Life That Time
+* I Got Reincarnated as a Slime
+ 
+หนัง/ซีรีย์ที่ชอบ :troll:  :                                                                                                                                                                                                          
+* April Come She Will 
+* Shin Godzilla
+* Spider man no way home
+
+สีที่ชอบ :blue_circle: :purple_circle:  :green_circle:   : ฟ้า ม่วง เขียว
+
+ศิลปินที่ชอบ :microphone:  : 
+* Kanaria EVE                                                                                                                                                                                                                    * เมลานี
+* มาร์ติเนซ
+งานอดิเรก :selfie:  : 
+* นอน
+* กิน
+* เล่นบาส
+ช่องทางติดต่อ :[IG :  aichnauuem](https://www.instagram.com/aichnauuem/)
+![image](https://github.com/user-attachments/assets/c0f83027-f5ff-4561-964f-2fe57e113572)
