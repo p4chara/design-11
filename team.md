@@ -7,7 +7,7 @@
 * โมจิ
 * ข้าวปั้น
 
-อนิเมะ :fingers_crossed: 
+อนิเมะ :supervillain: 
 * Sword Art Online
 * Happy Sugar Life That Time
 * I Got Reincarnated as a Slime
