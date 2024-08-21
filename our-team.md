@@ -16,4 +16,4 @@ IG:[ton_kizuru](https://www.instagram.com/ton_kizuru/)
 
 🙇‍♂️
 
-<img src="../Ice/Image/ชื่อไฟล์">
+<img src="../Ice/Image/LINE_ALBUM_รูป_240821_1.jpg">
