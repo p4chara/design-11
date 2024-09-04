@@ -189,7 +189,6 @@ Contact:[Facebook Teerachot Ngokpo](https://www.facebook.com/share/kdEDEFCEaxGEn
 * เล่นบาส
 
 ช่องทางติดต่อ :[IG :  aichnauuem](https://www.instagram.com/aichnauuem/)
-By : Ton 0089
 ![image](https://github.com/user-attachments/assets/c0f83027-f5ff-4561-964f-2fe57e113572)
 
 
