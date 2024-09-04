@@ -1,28 +1,36 @@
+
 BY NAMWARN 67130500103
 
 ชื่อ: พชร คล้ายสิทธิ์ (กาย) :suspect:
 
-จบมาจาก: Rayol English Program School
+อนิเมะ :supervillain: :
+* Sword Art Online
+* Happy Sugar Life That Time
+* I Got Reincarnated as a Slime
+ 
+หนัง/ซีรีย์ที่ชอบ :troll:  :                                                                                                                                                                                                          
+* April Come She Will 
+* Shin Godzilla
+* Spider man no way home
 
+สีที่ชอบ :blue_square:  :purple_circle:  :green_circle:   : ฟ้า ม่วง เขียว
+=======
 ชอบกินอะไร
 * กะเพราหมูกรอบ
 * กะเพราไก่ไข่ดาว
 * ราดหน้า
 
-หนัง/ซีรีย์ที่ชอบ: Forrest Gump
 
-สีที่ชอบ: น้ำเงิน
+ศิลปินที่ชอบ :microphone:  : 
+* Kanaria EVE                                                                                                                                                                                                                    * เมลานี
+* มาร์ติเนซ
+งานอดิเรก :selfie:  : 
+* นอน
+* กิน
+* เล่นบาส
 
-แนวเพลงที่ชอบ/ศิลปินที่ชอบ
-* Arctic Monkeys
-* Oasis
-* Radio head
-  
-งานอดิเรก: เตะฟุตบอล
 
-ช่องทางติดต่อ : [Ig : p4chara](https://www.instagram.com/p4chara?igsh=MXZoZDAwY2lubXR2cg==)
-
-<img src="../Namwarn/Image/IMG_0406.jpeg">
+ช่องทางติดต่อ :[IG :  aichnauuem](https://www.instagram.com/aichnauuem/)
 
 ชื่อ: ทิวากร จำนงศาสตร์ (ปัง)
 
