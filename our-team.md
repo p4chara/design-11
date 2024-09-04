@@ -74,7 +74,7 @@ BY NAMWARN 67130500103
 
 [IG: _.pangxd](https://www.instagram.com/_.pangxd/) 🍀
 
-<img src="../Atom/Image/pang.jpg"> 
+<img src="../main/Image/pang.jpg"> 
 
 # แนะนำน้ำหวาน 😵‍💫
 
