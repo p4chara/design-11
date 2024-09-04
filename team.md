@@ -40,4 +40,4 @@
 
 [IG: _.pangxd](https://www.instagram.com/_.pangxd/) 🍀
 
-<img src="../main/Image/pan.jpg"> 
+<img src="../main/Image/ton.jpg"> 
