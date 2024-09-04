@@ -1,29 +1,40 @@
-BY NAMWARN 67130500103
+
+# BY NAMWARN 67130500103
 
 ชื่อ: พชร คล้ายสิทธิ์ (กาย) :suspect:
 
-จบมาจาก: Rayol English Program School
+อนิเมะ :supervillain: :
+* Sword Art Online
+* Happy Sugar Life That Time
+* I Got Reincarnated as a Slime
+ 
+หนัง/ซีรีย์ที่ชอบ :troll:  :                                                                                                                                                                                                          
+* April Come She Will 
+* Shin Godzilla
+* Spider man no way home
+
+สีที่ชอบ :blue_square:  :purple_circle:  :green_circle:   : ฟ้า ม่วง เขียว
 
 ชอบกินอะไร
 * กะเพราหมูกรอบ
 * กะเพราไก่ไข่ดาว
 * ราดหน้า
 
-หนัง/ซีรีย์ที่ชอบ: Forrest Gump
 
-สีที่ชอบ: น้ำเงิน
+ศิลปินที่ชอบ :microphone:  : 
+* Kanaria EVE
+* เมลานี
+* มาร์ติเนซ
+งานอดิเรก :selfie:  : 
+* นอน
+* กิน
+* เล่นบาส
 
-แนวเพลงที่ชอบ/ศิลปินที่ชอบ
-* Arctic Monkeys
-* Oasis
-* Radio head
-  
-งานอดิเรก: เตะฟุตบอล
 
-ช่องทางติดต่อ : [Ig : p4chara](https://www.instagram.com/p4chara?igsh=MXZoZDAwY2lubXR2cg==)
+ช่องทางติดต่อ :[IG :  aichnauuem](https://www.instagram.com/aichnauuem/)
+<img src="../main/Image/IMG_0406.jpeg"> 
 
-<img src="../Namwarn/Image/IMG_0406.jpeg">
-
+# by Atom 67130500092
 ชื่อ: ทิวากร จำนงศาสตร์ (ปัง)
 
 จบมาจาก: โรงเรียนวัดนวลนรดิศ
@@ -66,9 +77,10 @@ BY NAMWARN 67130500103
 
 [IG: _.pangxd](https://www.instagram.com/_.pangxd/) 🍀
 
-<img src="../Atom/Image/pang.jpg"> 
+<img src="../main/Image/pan.jpg"> 
 
-# แนะนำน้ำหวาน 😵‍💫
+# by guy 67130500100
+แนะนำน้ำหวาน 😵‍💫
 
 ชื่อ  : พิรญาณ์ มือชัยภูมิ ( น้ำหวาน) <br>
 วันเกิด : 11 สิงหาคม 2548 <br>
@@ -95,8 +107,9 @@ BY NAMWARN 67130500103
 * เต้น
   
 ช่องทางติดต่อ :[IG : saynamwarn](https://www.instagram.com/saynamwarn?igsh=MWkyMTY1Y2RndXBlZw==)
-<img src="../Guy/Image/Namwarn.jpg"> 
+<img src="../Guy/Image/namwan.jpg"> 
 
+# by ice 67130500079
 ชื่อ: ธนากร นาคประสิทธิ์ (ต้น)
 
 จบมาจาก: บางปะกอก
@@ -115,7 +128,7 @@ IG:[ton_kizuru](https://www.instagram.com/ton_kizuru/)
 
 🙇‍♂️
 
-<img src="../Ice/Image/LINE_ALBUM_รูป_240821_1.jpg">
+<img src="../main/Image/ton.jpg">
 
 ชื่อ:ธีรโชติ งอกโพธิ์ 
 
@@ -143,9 +156,9 @@ IG:[ton_kizuru](https://www.instagram.com/ton_kizuru/)
 
 Contact:[Facebook Teerachot Ngokpo](https://www.facebook.com/share/kdEDEFCEaxGEn9TB/?mibextid=qi2Omg) 🥇
 
-<img src="../Pang/Image/Atom.jpg">
-
-# แนะนำ ICE  :snowflake: 
+<img src="../main/Image/atom.jpg">
+# by ton 67130500089
+แนะนำ ICE  :snowflake: 
 ชื่อ  : ต่อศักดิ์ โรจนกรินทร์ ( ICE ) <br>
 วันเกิด : 18 มีนาคม 2549 <br>
 จบมาจาก : นนทบุรีวิทยาลัย <br>
@@ -167,7 +180,8 @@ Contact:[Facebook Teerachot Ngokpo](https://www.facebook.com/share/kdEDEFCEaxGEn
 สีที่ชอบ :blue_square:  :purple_circle:  :green_circle:   : ฟ้า ม่วง เขียว
 
 ศิลปินที่ชอบ :microphone:  : 
-* Kanaria EVE                                                                                                                                                                                                                    * เมลานี
+* Kanaria EVE
+* * เมลานี
 * มาร์ติเนซ
 งานอดิเรก :selfie:  : 
 * นอน
@@ -175,7 +189,6 @@ Contact:[Facebook Teerachot Ngokpo](https://www.facebook.com/share/kdEDEFCEaxGEn
 * เล่นบาส
 
 ช่องทางติดต่อ :[IG :  aichnauuem](https://www.instagram.com/aichnauuem/)
-By : Ton 0089
 ![image](https://github.com/user-attachments/assets/c0f83027-f5ff-4561-964f-2fe57e113572)
 
 
