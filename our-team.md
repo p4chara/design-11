@@ -1,37 +1,20 @@
 
 # BY NAMWARN 67130500103
+* แนะนำกาย กันค่า  ิ ิ :biting_lip:
 
-ชื่อ: พชร คล้ายสิทธิ์ (กาย) :suspect:
-
-อนิเมะ :supervillain: :
-* Sword Art Online
-* Happy Sugar Life That Time
-* I Got Reincarnated as a Slime
- 
-หนัง/ซีรีย์ที่ชอบ :troll:  :                                                                                                                                                                                                          
-* April Come She Will 
-* Shin Godzilla
-* Spider man no way home
-
-สีที่ชอบ :blue_square:  :purple_circle:  :green_circle:   : ฟ้า ม่วง เขียว
-
-ชอบกินอะไร
-* กะเพราหมูกรอบ
-* กะเพราไก่ไข่ดาว
-* ราดหน้า
+สวัสดี คุณอยู่กับน้ำหวาน วันนี้เราจะมาแนะนำกายกันนะคร้าบ เพื่อนกายมีนามว่า  พชร คล้ายสิทธิ์ เพื่อนผมคนนี้จบมัธยมนานาชาติ 
+Royal English Program School นี่อย่างเท่ กายบอกว่างานอดิเรกคือเล่นฟุตบอล แต่ในไอจีเห็นดีดกีตาร์ทุกวัน ในด้านของอาหารการกิน
+กาย love กะเพราหมูกรอบ และ กะเพราไก่ไข่ดาว ท่าทางจะเป็นกะเพราlover ในส่วนของเพลง เพื่อนกายบอกว่าชอบ 
+Oasis , Radio head , Arctic Monkeys โหห เทสดีจัดด 
+ภาพรวม เพื่อนเป็นคนตลก ยิงมุกไม่พัก ชอบทำเสียงแปลกๆ ฮาๆกันไปสนุกดี จุ้บๆ  ิ ิ
 
 
-ศิลปินที่ชอบ :microphone:  : 
-* Kanaria EVE
-* เมลานี
-* มาร์ติเนซ
-งานอดิเรก :selfie:  : 
-* นอน
-* กิน
-* เล่นบาส
 
 
-ช่องทางติดต่อ :[IG :  aichnauuem](https://www.instagram.com/aichnauuem/)
+
+
+
+ช่องทางติดต่อ :[IG :  p4chara](https://www.instagram.com/p4chara/)
 <img src="../main/Image/IMG_0406.jpeg"> 
 
 # by Atom 67130500092
