@@ -1,2 +1,2 @@
 # Storyboard
-<img src="../main/Image/Story-Board.jpg"> 
+<img src="../main/Image/StoryBoard.jpg"> 
